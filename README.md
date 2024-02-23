@@ -1,2 +1,1 @@
-# Santhosh-Marriage-Invitation
-Randi Randi Dayacheyandi
+# For my Special One
